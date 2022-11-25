@@ -1,2 +1,2 @@
 # My-Website
-Ayush and Kishanth Pirul Universty Vadodara Gujarat
+Ayush and Kishanth Parul University Vadodara Gujarat
